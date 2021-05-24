@@ -1,1 +1,2 @@
-# stariq26
+SADIA TARIQ
+SECTION D
